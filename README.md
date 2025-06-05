@@ -1,2 +1,2 @@
-# myrules2025
+# My Rules 2025
 English course rules and expectations
